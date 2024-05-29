@@ -1,1 +1,0 @@
- \\sisfo_pangkat.zip
